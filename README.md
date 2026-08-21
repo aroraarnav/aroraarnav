@@ -1,3 +1,3 @@
 ## Arnav Arora
 
-[https://aroraarnav.com](aroraarnav.com)
+[aroraarnav.com](https://aroraarnav.com)
